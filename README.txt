@@ -1,3 +1,2 @@
 www.arabisch-fuer-kinder.de
-Seite für arabisch lernen
-
+Seite für arabisch lernen.
